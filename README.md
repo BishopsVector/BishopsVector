@@ -1,3 +1,3 @@
-Funny kid
+Funny contagious kid
 
 27.
